@@ -1,6 +1,6 @@
 ![](https://i.postimg.cc/CKy52MHv/image-2024-05-23-222641415.png)
 
-![](https://files.catbox.moe/azkwav.png)
+![](https://files.catbox.moe/k62v2j.png)
 
 # ![evil ass viewers](https://komarev.com/ghpvc/?username=fantayks) @ FANTAYKS
 
